@@ -1,6 +1,6 @@
 # 🕶️ Ankara Escort – Hızlı, Güvenli ve Gizli Hizmetler 🌟
 
-[![TANITIM İÇİN TELEGRAM üzerinden hemen iletişime geçin](reklam.png)]
+![TANITIM İÇİN TELEGRAM üzerinden hemen iletişime geçin](reklam.png)
 
 ---
 
